@@ -64,6 +64,7 @@
 1. Anibal Massaini, produtor de cinema
 1. Anita Simis, prof
 1. Anna Muylaert, cineasta
+1. Anna Letícia Pereira de Carvalho, docente e pesquisadora
 1. Anne Fryszman, curadora e programadora
 1. Annely Damião Nascimento, gestora cultural
 1. Antônio Ferreira, cineasta
